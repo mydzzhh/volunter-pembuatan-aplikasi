@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Mayada, [Linkedin](https://www.linkedin.com/in/mayada-azizah-85696121b/).
-* Hasyim, [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/hasyimasya-ri/)).
+* Hasyim, [Linkedin](https://www.linkedin.com/in/hasyimasya-ri/).
